@@ -1,5 +1,5 @@
 # June-23-Signora-Salon-Design-
-Our goal is to help you achieve a polished , confident look that reflects your uqiue style and personality we offer wide range of beauty treatments and our stylist stay up to date on the latest trends and tecniques in the beauty industry while also providing you with top-notch service in a warm and inviting atmosphere.
+Located in Abuja Gwarimpa ,our  goal is to help you achieve a polished , confident look that reflects your uqiue style and personality we offer wide range of beauty treatments and our stylist stay up to date on the latest trends and tecniques in the beauty industry while also providing you with top-notch service in a warm and inviting atmosphere.
 Here at Signora's Beauty Salon we are available within the following hours. Please abide by the following time so we can work efficiently to Beautify our customers.
 
 Monday-Saturday 9am-7pm
